@@ -67,5 +67,5 @@ Here's a quick look at my journey:
 ---
 
 ## 📩 Contact Me
-Feel free to reach out for collaborations or just to chat!  
-Email: [adam.rola110@gmail.com](mailto:adam.rola110@gmail.com)
+Feel free to reach out for collaborations!  
+Email: [adam.rola.contact@gmail.com](mailto:adam.rola.contact@gmail.com)
